@@ -1,1 +1,1 @@
-# Ai-based-disease-awareness-
+Put your own field-observation and prototype-testing photos here. Use participant permission where required. Do not upload patient records, prescriptions, IDs, or other sensitive medical information.
